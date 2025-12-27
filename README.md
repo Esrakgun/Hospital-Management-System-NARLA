@@ -450,3 +450,63 @@ Her türlü geri bildirim, öneri veya iş birliği için benimle iletişime ge�
 ---
 
 ## 🖼️Görseller-Hikaye görünümü:
+
+<img width="1906" height="912" alt="1a" src="https://github.com/user-attachments/assets/e79e6418-d710-4c0a-a33e-781dbbe4f62c" />
+<img width="1842" height="840" alt="1b" src="https://github.com/user-attachments/assets/0bd180f6-b98d-4db7-8da5-ff600e11b10b" />
+<img width="1902" height="908" alt="1c" src="https://github.com/user-attachments/assets/c7a913e4-4699-4182-af9a-5359dcd0dcc5" />
+<img width="1900" height="904" alt="1d" src="https://github.com/user-attachments/assets/0342ac3d-a973-44ef-bb85-5f6234bf624a" />
+<img width="1893" height="909" alt="1e" src="https://github.com/user-attachments/assets/0465a33e-239e-4b31-ba6f-7fd565f611c6" />
+<img width="1900" height="900" alt="1f" src="https://github.com/user-attachments/assets/41b2567f-a5a1-44a0-b9ae-05117cdb4860" />
+<img width="1901" height="910" alt="2a" src="https://github.com/user-attachments/assets/e6181d57-06c0-4db4-b06a-708143bb5ecc" />
+<img width="1906" height="905" alt="2b" src="https://github.com/user-attachments/assets/c4ef552f-d878-4895-a82c-a091feb07dc3" />
+<img width="1902" height="901" alt="2c" src="https://github.com/user-attachments/assets/a578bd55-2438-433c-8725-6511acd4db06" />
+<img width="1904" height="905" alt="2d" src="https://github.com/user-attachments/assets/617a6149-73a5-4dab-bdfc-7bd54f7e284d" />
+<img width="1902" height="906" alt="3a" src="https://github.com/user-attachments/assets/aaf98131-596c-4550-a999-afc7de58b3fd" />
+<img width="1896" height="903" alt="3b" src="https://github.com/user-attachments/assets/49a467de-fcba-4446-9e30-a16c81ce9219" />
+<img width="1912" height="864" alt="3c" src="https://github.com/user-attachments/assets/94494593-9939-41cc-b5e6-b36aa7c469bd" />
+<img width="1903" height="909" alt="3d" src="https://github.com/user-attachments/assets/49c5d1d8-0409-45e3-9d15-a5cd3e17afde" />
+<img width="1910" height="908" alt="3e" src="https://github.com/user-attachments/assets/30caac6e-8434-4a98-9912-1f4cd3a2f7a2" />
+<img width="1911" height="904" alt="4a" src="https://github.com/user-attachments/assets/6e47a9db-c8b7-48e7-b53d-de57bec411fb" />
+<img width="1907" height="902" alt="4b" src="https://github.com/user-attachments/assets/da5cdb97-6548-4ec2-8a16-78c5d5a04bd9" />
+<img width="1914" height="909" alt="4c" src="https://github.com/user-attachments/assets/b944ceca-d953-4294-aef6-bf55a4d9b1ce" />
+<img width="1908" height="908" alt="4d" src="https://github.com/user-attachments/assets/d5a62f89-7ecc-4896-b203-e3b94ff0ac04" />
+
+---
+
+## Video:
+https://github.com/user-attachments/assets/f97788f4-a308-4935-98ed-b70633c32264
+https://github.com/user-attachments/assets/a07d0618-b00b-4359-bf0e-121b51d4dc8b
+https://github.com/user-attachments/assets/bed6d855-4c43-4ab3-b54b-c8d9dc6faac9
+https://github.com/user-attachments/assets/80075e27-6610-4840-819b-17670bb14a4f
+https://github.com/user-attachments/assets/bebe3538-6b25-46e1-9c4f-dd9f72f6c758
+https://github.com/user-attachments/assets/2aa1fb56-f745-403a-bbbb-b2b90cd6dfb5
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
