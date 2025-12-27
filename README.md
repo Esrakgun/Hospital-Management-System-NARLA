@@ -474,11 +474,17 @@ Her türlü geri bildirim, öneri veya iş birliği için benimle iletişime ge�
 ---
 
 ## Video:
+
 https://github.com/user-attachments/assets/f97788f4-a308-4935-98ed-b70633c32264
+
 https://github.com/user-attachments/assets/a07d0618-b00b-4359-bf0e-121b51d4dc8b
+
 https://github.com/user-attachments/assets/bed6d855-4c43-4ab3-b54b-c8d9dc6faac9
+
 https://github.com/user-attachments/assets/80075e27-6610-4840-819b-17670bb14a4f
+
 https://github.com/user-attachments/assets/bebe3538-6b25-46e1-9c4f-dd9f72f6c758
+
 https://github.com/user-attachments/assets/2aa1fb56-f745-403a-bbbb-b2b90cd6dfb5
 
 
